@@ -6,8 +6,8 @@ Team lead-https://trailblazer.me/id/e762
 Team Member 1-https://trailblazer.me/id/dkumar2088
 Team Member 2-https://trailblazer.me/id/santg36
 Team member 3-https://trailblazer.me/id/vijay36
-Project template pdf
 
+Project template pdf
 
 https://docs.google.com/document/d/1b2E755ujnJPsW00KjCRmK9lhunr8PSze/edit?usp=drivesdk&ouid=111102135301904387476&rtpof=true&sd=true
 
