@@ -9,7 +9,7 @@ Team member 3-https://trailblazer.me/id/vijay36
 
 
 
-Project report template pdf..https://drive.google.com/file/d/1UyM2hKsaz47x-soWv4eerf4nAttzJCKW/view?usp=drivesdk
+https://docs.google.com/document/d/1b2E755ujnJPsW00KjCRmK9lhunr8PSze/edit?usp=drivesdk&ouid=111102135301904387476&rtpof=true&sd=true
 
 
 Project Demonstration video..https://drive.google.com/file/d/1V3GOsAng6BHbsR9ggvDAdLtGmvzveb4J/view?usp=drivesdk
